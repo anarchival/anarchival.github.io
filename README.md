@@ -1,1 +1,1 @@
-# anarchival.github.io
+# anarchival.net
